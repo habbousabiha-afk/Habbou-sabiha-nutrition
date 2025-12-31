@@ -1,0 +1,1 @@
+Il est recommandé de privilégier une alimentation riche en fibres (légumes, fruits, céréales complètes) pour favoriser la satiété. Il est également essentiel de réduire la consommation de produits ultra-transformés et de boissons sucrées, tout en maintenant une hydratation régulière et une activité physique adaptée.
